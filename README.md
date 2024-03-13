@@ -1,5 +1,8 @@
 # Polaroid Images
 
+> [!IMPORTANT]
+> Copyright Notice: The use of pictures or any other copyrighted material of my person in the program is done solely with the intention of expressing my admiration and appreciation for them. I do not claim ownership or any rights to these images. All copyrights and intellectual property rights belong to the respective owners. If he request the removal or modification of any content, including the pictures used, I will promptly comply. This program is not intended for commercial purposes and is solely a personal expression of admiration. Thank you for understanding and respecting the rights of the copyright owners."
+
 💙 Instagram: [@izzyluuuuh](https://www.instagram.com/izzyluuuuh/)
 
 ---
